@@ -1,1 +1,1 @@
-Please download the video to view the video
+Please download the video by clicking on view raw to view the video
